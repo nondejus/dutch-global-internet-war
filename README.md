@@ -1,2 +1,2 @@
-# dutch-internet-war
+# dutch-global-internet-war
 2002-2022
